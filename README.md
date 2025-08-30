@@ -72,4 +72,4 @@ Abdul Manan
 
 📍 Sialkot, Pakistan
 
-🌐 LinkedIn
+🌐 LinkedIn https://www.linkedin.com/in/abdul-manan-a96351254/
